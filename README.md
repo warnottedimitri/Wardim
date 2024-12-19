@@ -59,7 +59,7 @@ Based in 🇧🇪 **Marchin, Huy, Belgium**, I enjoy solving technical challenge
 📧 **Email:** [warnottedimitri@gmail.com](mailto:warnottedimitri@gmail.com)  
 📱 **Phone:** +32 494 524 514  
 🌍 **Location:** Marchin, Huy, Belgium  
-💼 **LinkedIn:** [LinkedIn Profile](#)  
+💼 **LinkedIn:** [LinkedIn Profile](https://www.linkedin.com/in/dimitri-w-37064987/)  
 
 ---
 
